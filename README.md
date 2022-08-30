@@ -1,4 +1,4 @@
-### Hi there I'm Roger R.👋
+### Hi there I'm Roger👋
 
 ### About me 
 
